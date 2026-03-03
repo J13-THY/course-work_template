@@ -1,3 +1,3 @@
 # course-work_template
-# GUMISIRIZA JOEL 
-# 24/U/ITD/04990/PD
+ GUMISIRIZA JOEL 
+ 24/U/ITD/04990/PD
